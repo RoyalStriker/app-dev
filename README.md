@@ -56,3 +56,13 @@ etc.
 
 **Plot:** Dominic Toretto (Vin Diesel) enjoys the adrenaline of street car racing and his fans treat him like a rock star. After a blazing encounter with the ruthless Johnny Tran, Dom decides to take Brian (Paul Walker), a newcomer to street racing, under his wing. Dom's sister Mia sees something she likes in Brian, too. Trouble is, neither of them realize he's an undercover cop, and Dominic and his rival Johnny Tran are both the prime suspects in a case involving dirty money and big-rig hijacking.
 
+
+**Black Clover**
+
+**Creator:** Written and illustrated by Yūki Tabata.
+
+**Manga Start:** Serialized in Shueisha’s Weekly Shōnen Jump since February 2015.
+
+**Anime Start:** The Pierrot studio adaptation premiered in October 2017.
+
+**Plot:** The story centers on Asta, a young boy born without any magical power in a world where magic is everything. Despite this, he dreams of becoming the Wizard King, the strongest mage in the Clover Kingdom. Alongside his rival and childhood friend Yuno, who is naturally gifted with immense magic, Asta strives to overcome his limits and prove that true strength comes from determination and hard work.
